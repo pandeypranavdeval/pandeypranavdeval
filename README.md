@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **pranavdevalp@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1RGC14JCqM6HeFQGYS2QOyWa6J1PXvhVL/view](https://drive.google.com/file/d/1RGC14JCqM6HeFQGYS2QOyWa6J1PXvhVL/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1RGC14JCqM6HeFQGYS2QOyWa6J1PXvhVL/view](https://drive.google.com/file/d/1n4YXkp882pGQVVFl4AmJBhCqPXCDvSm3/view?usp=sharing)
 
 - ⚡ Fun fact **I think and I can (not a fun but fact!)**
 
